@@ -9,4 +9,12 @@ This is a change. Aren't you happy I made this change?
 This is my Bob change for the second time 
 Let's do it again! Get done!
 
+
 Bill, Ted, Alice, and Carol were supposed to go square dancing but something bad happened. The circle left the square dance because nobody wanted it around. 
+
+
+Well I am doing another change!
+
+Why do seagulls fly over the sea? Because if they flew over the bay they would be Baygulls (bagels)
+Haha
+
