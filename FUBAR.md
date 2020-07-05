@@ -18,3 +18,4 @@ Well I am doing another change!
 Why do seagulls fly over the sea? Because if they flew over the bay they would be Baygulls (bagels)
 Haha
 
+If America changed from pounds to kilograms overnight, would it create mass confusion?
