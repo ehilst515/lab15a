@@ -19,3 +19,5 @@ Why do seagulls fly over the sea? Because if they flew over the bay they would b
 Haha
 
 If America changed from pounds to kilograms overnight, would it create mass confusion?
+Why were the little grapes sad? Because they were in a jam.
+
