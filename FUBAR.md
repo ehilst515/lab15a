@@ -8,3 +8,5 @@ This is my change for feature3
 This is a change. Aren't you happy I made this change?
 This is my Bob change for the second time 
 Let's do it again! Get done!
+
+Bill, Ted, Alice, and Carol were supposed to go square dancing but something bad happened. The circle left the square dance because nobody wanted it around. 
